@@ -1,6 +1,7 @@
 your worst nightmare
 
 - proship
+- supports fujoshi and im gay(im educated with stuff what isnt tiktok)
 - anti harrasment
 - pro-para (Pro-recovery anti contact)
 - Rabies pride
