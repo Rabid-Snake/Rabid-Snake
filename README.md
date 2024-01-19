@@ -16,6 +16,5 @@ if my mere existence dont anger you, feel free to talk to me.
 
 **on 18+ im near docks,  on PG im in rythm game area.**
 
-***im heavly indentifying with my source, i will call my source me, if that angers you, thats your issue not mine.***
 
 ![3215220](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/d66d5c54-cf3b-4b4d-b707-a681e6e4413b)
