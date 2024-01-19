@@ -16,5 +16,7 @@ if my mere existence dont anger you, feel free to talk to me.
 
 **on 18+ im near docks,  on PG im in rythm game area.**
 
+"your pony is ugly" im aware, i dont spend my every waking hour on this game so i have no idea how to make it look good (help)
+
 
 ![3215220](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/d66d5c54-cf3b-4b4d-b707-a681e6e4413b)
