@@ -10,4 +10,6 @@ your worst nightmare
 
 im better than you btw.
 
+if you are a full stranger to me, dont expect me to be nice to you, esp if you are one of those discource addicted mfs who are scared of a hide button.
+
 ![3215220](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/1501bafa-f10c-4d7c-a14c-de874cea9105)
