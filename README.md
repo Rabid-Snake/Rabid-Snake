@@ -24,6 +24,5 @@ if my mere existence dont anger you, feel free to talk to me.
 i will be laughing at:
 - your long ass Dni lists
 - having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
-- doubles dni
 - fakeclaimers
 - people who use "PROSHITTER"
