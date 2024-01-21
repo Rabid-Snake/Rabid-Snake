@@ -20,3 +20,10 @@ if my mere existence dont anger you, feel free to talk to me.
 
 
 ![3215220](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/d66d5c54-cf3b-4b4d-b707-a681e6e4413b)
+***
+i will be laughing at:
+- your long ass Dni lists
+- having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
+- doubles dni
+- fakeclaimers
+- people who use "PROSHITTER"
