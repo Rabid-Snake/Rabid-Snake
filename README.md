@@ -4,7 +4,7 @@ your worst nightmare
 - supports fujoshis
 - anti harrasment
 - pro-para (Pro-recovery anti contact)
-- Rabies pride![z3hhj945](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/e506788b-f3d6-4fec-9f58-5ed4963339fb)
+- Rabies pride
 
 - Fictive who hates being used as an argument
 - Mary Kozakura obsession.
