@@ -1,4 +1,4 @@
-your worst nightmare
+things bout me what anger people.
 
 - proship
 - supports fujoshis
@@ -8,6 +8,10 @@ your worst nightmare
 
 - Fictive who hates being used as an argument
 - Mary Kozakura obsession. ([ME x Mary board :3 ](https://www.pinterest.com/rabid0snake/kuromary/) )
+***
+less angering things
+- retro tech enthusiast.
+- taken.
 
 im better than you btw.
 
