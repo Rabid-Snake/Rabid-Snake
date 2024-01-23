@@ -11,7 +11,7 @@ things bout me what anger people.
 ***
 less angering things
 - retro tech enthusiast.
-- taken.
+- taken. (im with Len he just cosplays Mary sometimes)
 
 im better than you btw.
 
