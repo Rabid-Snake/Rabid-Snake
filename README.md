@@ -26,3 +26,7 @@ i will be laughing at:
 - having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
 - fakeclaimers
 - people who use "PROSHITTER"
+
+***
+shoutout to the car doodle i got on my strawpage
+![strawpage-picasso-lYIKoPWBYOkbhnZCpwyC](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/18fd6880-e6e1-4a06-a806-4817347fbaf6)
