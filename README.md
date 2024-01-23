@@ -15,7 +15,7 @@ if you are a full stranger to me, dont expect me to be nice to you, esp if you a
 if my mere existence dont anger you, feel free to talk to me.
 
 
-**on 18+ im near docks,  on PG im in rythm game area.**
+**on 18+ im near docks,  on PG im in rythm game area. (sometimes somewhere else if i get bored)**
 
 "your pony is ugly" im aware, i dont spend my every waking hour on this game so i have no idea how to make it look good (help)
 
