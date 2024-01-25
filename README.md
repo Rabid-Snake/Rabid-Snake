@@ -1,3 +1,10 @@
+**if you think pro-ship stands for problematic ship and refuses to acknowlege otherwise, to me you are too stupid to argue with, so i will just hide you**
+
+
+im that pervert in your DNI and i find making people angry over putting proship in my name hilarious.
+
+
+***
 things bout me what anger people.
 
 - proship
