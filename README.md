@@ -1,5 +1,5 @@
 **if you think pro-ship stands for problematic ship and refuses to acknowlege otherwise, to me you are too stupid to argue with, so i will just hide you**
-
+[my sources](https://drive.google.com/drive/folders/1s2PL7TcWJfxDGzKn1M7jnMLViOI6Dvj_)
 
 im that pervert in your DNI and i find making people angry over putting proship in my name hilarious.
 
