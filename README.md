@@ -1,6 +1,7 @@
 **if you think pro-ship stands for problematic ship and refuses to acknowlege otherwise, to me you are too stupid to argue with, so i will just hide you**
-[my sources](https://drive.google.com/drive/folders/1s2PL7TcWJfxDGzKn1M7jnMLViOI6Dvj_)
 
+[Actual research about fandom purity culture](https://drive.google.com/drive/folders/1s2PL7TcWJfxDGzKn1M7jnMLViOI6Dvj_)
+[my opinion flowchart based off arguments ive gotten from antis.](https://files.catbox.moe/azb1oe.png)
 im that pervert in your DNI and i find making people angry over putting proship in my name hilarious.
 
 
