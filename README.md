@@ -40,7 +40,7 @@ i will be laughing at:
 - having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
 - fakeclaimers
 - people who use "PROSHITTER"
-
+- people who claim to be antis while being an okegom fans (okegom fans ily though)
 ***
 shoutout to the car doodle i got on my strawpage
 
