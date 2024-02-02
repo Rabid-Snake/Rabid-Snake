@@ -4,44 +4,30 @@
 
 [my opinion flowchart based off arguments ive gotten from antis.](https://files.catbox.moe/azb1oe.png)
 ***
-im that pervert in your DNI and i find making people angry over putting proship in my name hilarious.
+<p align="center">
+<img src="https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/bc5505dd-2f5e-4579-bb24-aca378472f1c" />
+</p>
+
+
+freed from suspension. i learned nothing.
+***
+Name's Nero, im a fictive, [proshipper](https://define-proship.carrd.co), yaoi lover, self diagnosis supporter, and im pro-para (anti-contact pro-recovery). and i might have slight supriority complex.
 
 
 ***
-things bout me what anger people.
-
-- proship
-- supports fujoshis
-- anti harrasment
-- pro-para (Pro-recovery anti contact)
-- Rabies pride
-
-- Fictive who hates being used as an argument
-- Mary Kozakura obsession. ([ME x Mary board :3 ](https://www.pinterest.com/rabid0snake/kuromary/) )
+im either in my source cosplay(Kuroha), or matching with my bf as either kaito or sal, i sit whenever i want,but mainly around docks or rythm game area (sometimes library)
 ***
-less angering things
-- retro tech enthusiast.
-- taken. (im with Len he just cosplays Mary sometimes)
-
-im better than you btw.
-
-if you are a full stranger to me, dont expect me to be nice to you, esp if you are one of those discource addicted mfs who are scared of a hide button.
-if my mere existence dont anger you, feel free to talk to me.
-
-
-**on 18+ im near docks,  on PG im in rythm game area. (sometimes somewhere else if i get bored)**
-
-"your pony is ugly" im aware, i dont spend my every waking hour on this game so i have no idea how to make it look good (help)
-
-![3215220](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/d66d5c54-cf3b-4b4d-b707-a681e6e4413b)
+death threats direct onto my strawpage or guestbook.
 ***
-i will be laughing at:
-- your long ass Dni lists
+
+i have no Dni, i have secret power of clicking hide button and moving on with my day.
+
+**but i will be laughing at you if:**
+- antiship okegom fans
+- longest dni known to mankind
 - having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
-- fakeclaimers
-- people who use "PROSHITTER"
-- people who claim to be antis while being an okegom fans (okegom fans ily though)
+- saying "PROSHITTER!!!" "FUJOSHIT!!!!!"
 ***
-shoutout to the car doodle i got on my strawpage
-
-![strawpage-picasso-lYIKoPWBYOkbhnZCpwyC](https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/18fd6880-e6e1-4a06-a806-4817347fbaf6)
+<p align="center">
+<img src="https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/1899f950-828d-4dfc-8c0a-853b66384168" />
+</p>
