@@ -28,6 +28,15 @@ i have no Dni, i have secret power of clicking hide button and moving on with my
 - have shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
 - are saying "PROSHITTER!!!" "FUJOSHIT!!!!!"
 ***
+if in some way shape or form me:
+
+- shipping stuff from my source [me x mary](https://www.pinterest.com/rabid0snake/kuromary/)[me x shintaro](https://www.pinterest.com/rabid0snake/oh-ok/)
+- calling my source "me"
+- me being a fictive
+- me  being obsessed with mary
+
+  makes you mad, skill issue.
+***
 <p align="center">
 <img src="https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/1899f950-828d-4dfc-8c0a-853b66384168" />
 </p>
