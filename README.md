@@ -22,11 +22,11 @@ death threats direct onto my strawpage or guestbook.
 
 i have no Dni, i have secret power of clicking hide button and moving on with my day.
 
-**but i will be laughing at you if:**
-- antiship okegom fans
-- longest dni known to mankind
-- having shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
-- saying "PROSHITTER!!!" "FUJOSHIT!!!!!"
+**but i will be laughing at you if you:**
+-  are antiship okegom fans
+- have longest dni known to mankind
+- have shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
+- are saying "PROSHITTER!!!" "FUJOSHIT!!!!!"
 ***
 <p align="center">
 <img src="https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/1899f950-828d-4dfc-8c0a-853b66384168" />
