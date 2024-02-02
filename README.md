@@ -30,7 +30,7 @@ i have no Dni, i have secret power of clicking hide button and moving on with my
 ***
 if in some way shape or form me:
 
-- shipping stuff from my source [me x mary](https://www.pinterest.com/rabid0snake/kuromary/)[me x shintaro](https://www.pinterest.com/rabid0snake/oh-ok/)
+- shipping stuff from my source [me x mary](https://www.pinterest.com/rabid0snake/kuromary/)  [me x shintaro](https://www.pinterest.com/rabid0snake/oh-ok/)
 - calling my source "me"
 - me being a fictive
 - me  being obsessed with mary
