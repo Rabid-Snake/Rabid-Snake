@@ -1,8 +1,5 @@
 **if you think pro-ship stands for problematic ship and refuses to acknowlege otherwise, to me you are too stupid to argue with, so i will just hide you**
 
-[Actual research about fandom purity culture](https://drive.google.com/drive/folders/1s2PL7TcWJfxDGzKn1M7jnMLViOI6Dvj_)
-
-[my opinion flowchart based off arguments ive gotten from antis.](https://files.catbox.moe/azb1oe.png)
 ***
 <p align="center">
 <img src="https://github.com/Rabid-Snake/Rabid-Snake/assets/155862058/bc5505dd-2f5e-4579-bb24-aca378472f1c" />
@@ -25,12 +22,11 @@ i have no Dni, i have secret power of clicking hide button and moving on with my
 **but i will be laughing at you if you:**
 -  are antiship okegom fans
 - have longest dni known to mankind
-- have shit like"[thing] fans KILL YOURSELF!!!" inyour rentry
-- are saying "PROSHITTER!!!" "FUJOSHIT!!!!!"
+
 ***
 if in some way shape or form me:
 
-- shipping stuff from my source [me x mary](https://www.pinterest.com/rabid0snake/kuromary/)  [me x shintaro](https://www.pinterest.com/rabid0snake/oh-ok/)
+- shipping stuff from my source
 - calling my source "me"
 - me being a fictive
 - me  being obsessed with mary
