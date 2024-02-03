@@ -6,7 +6,6 @@
 </p>
 
 
-freed from suspension. i learned nothing.
 ***
 Name's Nero, im a fictive, [proshipper](https://define-proship.carrd.co), yaoi lover, self diagnosis supporter, and im pro-para (anti-contact pro-recovery). and i might have slight supriority complex.
 
